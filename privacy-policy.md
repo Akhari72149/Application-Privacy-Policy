@@ -74,4 +74,4 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 
 If you have any questions about this Privacy Policy, you can contact us at:
 
-**Email:** [your-email@example.com](mailto:dragon041200@outlook.com)
+**Email:** [dragon041200@outlook.com](mailto:dragon041200@outlook.com)
